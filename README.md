@@ -1,0 +1,2 @@
+# xudayorovw.github.io
+partfolio
